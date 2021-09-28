@@ -1,1 +1,2 @@
 Richard Maxwell
+maxwelri@oregonstate.edu
